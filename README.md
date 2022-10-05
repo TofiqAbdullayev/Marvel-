@@ -1,0 +1,2 @@
+# Marvel-
+personajlar haqqinda melumat
